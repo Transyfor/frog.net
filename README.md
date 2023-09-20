@@ -1,2 +1,0 @@
-# samuelrichard.net
- my website
